@@ -1,4 +1,4 @@
-# markdown_hp_OSB
+# OH-SEONGBIN.github.io
 
 # Movie
 Let me introduce the **_Best Movie_** in my life.
