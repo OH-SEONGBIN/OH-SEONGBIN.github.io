@@ -6,7 +6,7 @@
 
 ## 언터처블 : 1%의 우정
 
-<img src="https://t1.daumcdn.net/cfile/18518C4F4F2F710A23?original" width="2500" height="2500"
+<img src="https://t1.daumcdn.net/cfile/18518C4F4F2F710A23?original" width="2500" height="2500">
 
 이 영화는 고1때 밤에 잠이 오지않아 잠을 청하기 위해서 아무영화를 찾아보던 중 우연히 보게된 영화입니다.
 
