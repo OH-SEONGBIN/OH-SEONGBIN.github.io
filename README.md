@@ -13,15 +13,17 @@ It was a movie that I happened to watch late at night because I couldn't sleep, 
 
 I watched a movie to sleep, but I couldn't sleep more because the movie lingered in one`s mind.
 
-It's a story about a special cohabitation that began with a two-week bet.
+- Summary
 
-Philip, the top 1% millionaire who can't do anything without a 24-hour-a-day caregiver, and one day, all he has is a healthy body, the bottom 1% penniless unemployed Driss, who is curious and suggests a special bet.
+  It's a story about a special cohabitation that began with a two-week bet.
 
-He wants to be Philip's hands and feet for just two weeks to test whether he can endure nursing himself without falling apart.
-The only patient as much as some of the most incredible who can't find Driss blurted out, brought in to accept a bet is to come.
+  Philip, the top 1% millionaire who can't do anything without a 24-hour-a-day caregiver, and one day, all he has is a healthy body, the bottom 1% penniless unemployed Driss,   who is curious and suggests a special bet.
 
-Like this, the two extremes that seemed totally out of place,
-It is a story about two men living together in unpredictable and wonderful ways.
+  He wants to be Philip's hands and feet for just two weeks to test whether he can endure nursing himself without falling apart.
+  The only patient as much as some of the most incredible who can't find Driss blurted out, brought in to accept a bet is to come.
 
-A famous ambassador for this film,
-> "When I'm with him, I don't feel like I'm disabled."
+  Like this, the two extremes that seemed totally out of place,
+  It is a story about two men living together in unpredictable and wonderful ways.
+
+- A famous ambassador for this film,
+  > "When I'm with him, I don't feel like I'm disabled."
